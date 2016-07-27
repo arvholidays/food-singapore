@@ -1,0 +1,2 @@
+# food-singapore
+Singapore is filled with lots of food options and each dish has its aroma and flavor to make your trip memorable to this fascinating destination. If you are a food lover and visiting the place in recent time then must try all these above foods which will be enough to make your mind blow. You can also try some other dishes of Singapore, which will be also refreshing and lip-smacking. 
